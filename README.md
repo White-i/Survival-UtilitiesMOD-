@@ -1,2 +1,2 @@
-# Survival-UtilitiesMOD-
-咕咕咕？？？
+# Survival-UtilitiesMOD-食用教程
+
